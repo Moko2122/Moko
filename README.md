@@ -1,0 +1,2 @@
+# Moko
+Mendapatkan cuan
